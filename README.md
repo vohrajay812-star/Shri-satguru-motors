@@ -31,3 +31,6 @@ At Shri Satguru Motors, we believe in treating every customer with respect and d
 ---
 
 **Contact Us:** For reliable automobile repair and maintenance services, visit Shri Satguru Motors!
+<a href="https://wa.me/918802414451" target="_blank">
+    Chat on WhatsApp
+</a>
